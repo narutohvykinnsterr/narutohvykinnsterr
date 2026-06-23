@@ -5,7 +5,7 @@
  
 ||    ,            ᵏ ﹒  ⟢  ,, ᵗʳᵘˢᵗ ᶠᵘⁿᵈ ᵇᵃᵇʸ ‘‘ ||      %¹⁰⁰  ﹕  ⪩⪨     ⸝⸝
 
-<img width="370" height="320" alt="Image" src="https://github.com/user-attachments/assets/dc7a49a8-4212-44ed-9670-97471aacae34" />
+<img width="370" height="320" alt="Image" src="https://github.com/user-attachments/assets/e3e0a057-0644-48fe-a585-48d2774fa827" />
 
 ʰʰʰᵉˡˡᵒᵒᵒ!!! ʷᵉˡᶜᵒᵐᵉ ᵗᵒ ᵐʸ ᵍⁱᵗ, ⁱᵗ ˡᵒᵒᵏˢ ᵃ ˡⁱᵗᵗˡᵉ ᵇᵘⁿˢ ᵇᵘᵗ ᵉʰ!! ᵖˡᵉᵃˢᵉ ᶜʰᵉᶜᵏ ᵒᵘᵗ ᵐʸ ˢᵗʳᵃʷᵖᵃᵍᵉ ᵇᵉᶠᵒʳᵉ ⁱⁿᵗⁱⁿᵍ ʷⁱᵗʰ ᵐᵉ ᵒⁿ ᵖᵗ! ᵈⁿⁱ ᵖᵉᵒᵖˡᵉ ᵘⁿᵈᵉʳ ¹³, ᵖˡᵉᵃˢᵉ ᵘⁿᵈᵉʳˢᵗᵃⁿᵈ ᵗʰᵃᵗ !!
 
