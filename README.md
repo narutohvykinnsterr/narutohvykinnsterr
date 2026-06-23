@@ -1,4 +1,4 @@
-## Hi there 👋
+<img width="734" height="222" alt="Image" src="https://github.com/user-attachments/assets/8f7226da-5b54-412e-8a12-2264a8270181" />
 
 <!--
 **narutohvykinnsterr/narutohvykinnsterr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
