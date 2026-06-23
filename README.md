@@ -1,8 +1,8 @@
 <img width="734" height="222" alt="Image" src="https://github.com/user-attachments/assets/8f7226da-5b54-412e-8a12-2264a8270181" />
- ataboookkkkk
-<!--
-<img width="734" height="222" alt="Image" src="https://github.com/user-attachments/assets/db1f513e-62f4-49e1-8853-a66961f6dd8a" />
-Here are some ideas to get you started:
+
+
+
+<img width="734" height="222" alt="Image" src="https://github.com/user-attachments/assets/277e98ab-e9b8-4fff-9dd3-882f2b52c6df" />
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
