@@ -1,8 +1,7 @@
 <img width="734" height="222" alt="Image" src="https://github.com/user-attachments/assets/8f7226da-5b54-412e-8a12-2264a8270181" />
-
+ ataboookkkkk
 <!--
-**narutohvykinnsterr/narutohvykinnsterr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
+<img width="734" height="222" alt="Image" src="https://github.com/user-attachments/assets/db1f513e-62f4-49e1-8853-a66961f6dd8a" />
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
